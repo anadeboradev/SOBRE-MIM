@@ -2,7 +2,7 @@
 
 **Desenvolvedor**
 
-Meu nome é Ana Débora Muniz, tenho 17 anos e sou natural de Fortaleza (CE). Sou formada como técnica em desenvolvimento de sistemas e faço desenhos digitais.
+Meu nome é Ana Débora Muniz, tenho 17 anos, nasci e cresci em Fortaleza (CE). Sou formada como técnica em desenvolvimento de sistemas e faço desenhos digitais.
 
 Eu gosto muito desenhar e principalmente a área de programação. Compartilho os meus desenhos no meu instagram, no perfil "[CAPUCCINO](https://www.instagram.com/hotcapuccino2204?igsh=MWI1aXJianZnaHZ0Nw==)", faço desenhos de estilos diferente e com vários tipos de pincéis diferentes.
 
